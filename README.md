@@ -13,8 +13,8 @@ You can follow me on my professional account @Through_lola_lens
 
 ## Passions
 🩰 For 16 years of my life I loved **dancing**, i tried different styles like: ballet, contemporary, modern and aerial.  
+Now I like to go in **teather** and watch famous ballet or be a spectator to my old school dance show.    
 <sub> (In my case aerial stands for a metal circle pending from the ceiling, but in this category you can find a lot of styles like the one with fabrics coming down from the top. I hope to have erased your doubts) </sub>   
-Now I like to go in **teather** and watch famous ballet or be a spectator to my old school dance show.  
 📷 Since High school I started my journey with **photography**. I bought a camera, watched video, experienced in friends parties and failed a lot between some good shots. Now I'm still learning, but always walking with my camera to improve.
 
 ## Favourite websites
